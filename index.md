@@ -1,5 +1,2 @@
-## Welcome to my blog
-
-this is why I play
-
-$X \cup Y \rightarrow perfect$
+独与天地精神往来，而不敖倪于万物
+————《庄子·天地》
